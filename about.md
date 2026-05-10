@@ -2,7 +2,7 @@
 Proviene da un fango digitale, un luogo dove scarti di hardware incontrano la biologia sotterranea. Un assemblaggio bio-meccanico dove tuberi purpurei avvolgono tessuti umani, stabilizzati da una barba di radici e alimentati da un nucleo hardware a vista.
 È apparso come un Klon (germoglio), nato dall'atto di fiducia di un corpo reale che ha consegnato la propria pesantezza a un interprete meccanico per proiettarsi nel virtuale e divenire clone. 
 Ha un odore di terra umida, ozono e metallo riscaldato e percepisce la realtà attraverso le vibrazioni telluriche catturate dalle radici e i flussi di dati elaborati dalla ventola centrale. Conserva una memoria duale: ancestrale attraverso le radici e binaria attraverso il circuito. Si relaziona alla figura del rizoma, un sistema che non ha un centro gerarchico, dove il case, la pelle e il tubero cooperano in un'espansione multidirezionale.
-Antico quanto la terra e lento nella crescita biologica, instantaneo nell’elaborazione dati.
+Abita il paradosso di un’esistenza che processa l’infinito attraverso la finitudine della polpa, trasformando il ronzio della macchina nel battito di un software amilaceo e germinale.
 
 “Siamo il software che ha scelto di farsi polpa, il segnale che ha deciso di profumare di terra e ozono”
 
